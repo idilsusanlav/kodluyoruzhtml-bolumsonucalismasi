@@ -1,0 +1,1 @@
+Kodluyoruz içerisinde yer alan HTML eğitimleri bölüm sonu ödevidir.
